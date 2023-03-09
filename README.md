@@ -1,3 +1,5 @@
-# Cuenta de Damian en [99minutos](https://99minutos.com/) ⏱️
+# CUENTA ARCHIVADA ⚠️
 
-No encontraras nada relacionado a mi trabajo fuera de 99minutos, puedes saber mas de mi en mi [cuenta personal](https://github.com/Axoluchin) 🎈
+## Cuenta de Damian en 99minutos
+
+Actualmente ya no pertenezco a 99minutos, puedes saber más de mi en mi [cuenta personal](https://github.com/Axoluchin) 🎈
